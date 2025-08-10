@@ -1,0 +1,1 @@
+# tinhdiem2025mbs
